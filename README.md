@@ -1,1 +1,1 @@
-# just-tech-nerws
+# just-tech-news
